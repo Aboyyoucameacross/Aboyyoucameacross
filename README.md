@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Aboyyoucameacross
+- 👀 I’m interested in learning how to make Friday night funkin mods
+- 🌱 I’m currently learning Nothing O_O
+- 💞️ I’m looking to collaborate on Fnf
+- 📫 How to reach me : Discord= LemikzRed19Kckipp#9105
